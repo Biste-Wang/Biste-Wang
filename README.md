@@ -6,7 +6,7 @@
 
 #### 📫 How to reach me: Biste.Wang@outlook.com or Biste.Wang@gmail.com
 
-#### 😄 Pronouns: Shy, unsure but hardworking
+#### 😄 slogan: 去做吧，反正都会后悔。
 
 <!--
 **Biste-Wang/Biste-Wang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
