@@ -1,6 +1,6 @@
 ### Hi everyone 👋
 
-### This is Biste-Wang, a freshman in Github ✨
+### This is Biste-Wang ✨
 
 ### 去做吧，反正都会后悔。
 
